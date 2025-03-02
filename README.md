@@ -7,4 +7,4 @@ Semenjak aku mendengarkan lagu NIKI, aku rasa aku suka lagu-lagunya.
 Oh ya, lagu You'll Be In My Heart akan menjadi salah satu lagu favoritku.
 Tapi, lagu lain seperti On The Drive Home, The Apartmen We Won't Share, dan Oceans & Engines akan menjadi lagu yang relate dengan kisah kita.
 Sehat selalu ya cantik, jangan lupa makan, jangan sering begadang gara" minum kopi malem.
-I love you, Rut <3
+I love you, Ruti <3
